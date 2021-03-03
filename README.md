@@ -1,4 +1,4 @@
-## Hey 👋
+## Hey 👋 My names Eugene Kamulomo
 I am a 1st Year Cyber Security student, studying at Nottingham Trent University.
  
  📫 How to reach me:  [**E-mail**](mailto:eugene.kamulomo2020@my.ntu.ac.uk)
